@@ -1,3 +1,0 @@
-# HadoopImage
-
-‚„‚†‚Ä
